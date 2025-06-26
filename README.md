@@ -1,1 +1,1 @@
-# Earnlinks
+# vla-style.com
